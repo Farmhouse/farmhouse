@@ -1,6 +1,6 @@
 # The Farmhouse
 
-By **[Shane](http://iamshane.com)** of the house: **Farm**
+By **[Shane](http://veganstraightedge.com)** of the house: **Farm**.
 
 
 ## The House
